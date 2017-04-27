@@ -6,6 +6,11 @@ Facebook: [@realNotaryDepot](https://www.facebook.com/realNotaryDepot)
 Instagram: [@notarydepot](https://www.instagram.com/notarydepot/)  
 LinkedIn: [Notary Depot Company Page](https://www.linkedin.com/company/notary-depot)
 
+### [Just Became a Notary? Here's How You Set Your Notary Public Fees](https://www.notarydepot.com/blog/how-to-set-your-notary-public-fees)
+Congratulations! You're now a notary public. But how much do you charge? In this post, we're telling you everything you need to know about notary public fees.
+
+---
+
 ### [Notary Depot to immediately suspend the accounts of all North Carolina notaries](https://www.notarydepot.com/blog/notary-depot-to-immediately-suspend-the-accounts-of-all-north-carolina-notaries)
 In response to the recent revelation that North Carolina’s Secretary of State allowed over 300 illegal residents to become Notaries Public, Notary Depot has decided to immediately suspend all accounts in North Carolina until we can determine the legal residency status of each notary...
 
